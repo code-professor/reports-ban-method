@@ -3,7 +3,7 @@ banning methods for telegram, tiktok, instagram, snapchat and twitter (x app)
 
 ![CBD7C9D5-D685-48BA-97C9-D580A8B67FBF_1_105_c](https://github.com/code-professor/reports-ban-method/assets/163318281/aa1e7e27-0a42-4d1a-b3be-e80a701eefa3)
 
-I am a full stack deveoper and i love to teach about building web projects as well as practicing smart ideas.
+I am a full stack deveoper and I love to teach about building web projects as well as practicing smart ideas.
 
 here's my channel on telegram > https://t.me/+7kypF_oWo5xhOGY0
 
