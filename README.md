@@ -15,7 +15,7 @@ _ BULK REPROTS METHOD
 
 _ CLONING METHOD
 
-You'd learn more once you get to my inbox
+You'll learn more once you get to my inbox
 
 This banning method is only applicable to:
 
