@@ -23,12 +23,12 @@ This banning method is only applicable to:
 
 - INSTAGRAM
 
-- SNAPCHAT
+- SNAPCHAT 
 
 - TIKTOK
 
 - TWITTER (X APP)
 
-DISCLAIMER: The method you're about to learn should be used responsibly and I am not responsible for any unethical banning you make through my method
+DISCLAIMER: This method you're about to learn should be used responsibly and I am not responsible for any unethical banning you make through my method
 
 Remember: I am codeprofessor > https://t.me/+7kypF_oWo5xhOGY0
