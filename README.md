@@ -1,4 +1,4 @@
-# reports-ban-method
+ # reports-ban-method
 banning methods for telegram, tiktok, instagram, snapchat and twitter (x app)
 
 codeprofessor > https://t.me/+7kypF_oWo5xhOGY0
@@ -19,7 +19,7 @@ sessions and good proxies are also needed
 
 You'll learn more once you get to my inbox.
 
-This banning method is only applicable to:
+This banning method is only applicable to :
 
 - TELEGRAM
 
